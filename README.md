@@ -8,4 +8,5 @@
 
  I'm a multifandom but you'll see me at forsaken mostly.I dont rlly talk that much, im kinda introverted heh.
  
-[Ata](https://deathl0ck.atabook.org/)     [Strawpage](https://fizzgotairy.straw.page)
+&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;
+[Ata](https://deathl0ck.atabook.org/) &ensp;&ensp;    [Strawpage](https://fizzgotairy.straw.page)
