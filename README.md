@@ -10,11 +10,6 @@
 
 <p align="center"> Psalm 20:4
 
-
-
-
- I'm a multifandom but you'll see me at forsaken mostly.I dont rlly talk that much, im kinda introverted heh.
- "May he gives 
 &ensp;&ensp;&ensp; I'm a multifandom but you'll see me at forsaken mostly.I dont rlly talk that much, im kinda introverted heh.
  
 &ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;
