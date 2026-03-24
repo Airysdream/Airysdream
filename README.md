@@ -15,4 +15,4 @@
 &ensp;&ensp;&ensp; I'm a multifandom but you'll see me at forsaken mostly.I dont rlly talk that much, im kinda introverted heh.
  
 &ensp;&ensp;&ensp;&ensp;&ensp;&ensp;&ensp;
-[Ata](https://deathl0ck.atabook.org/) &ensp;&ensp;    [Strawpage](https://fizzgotairy.straw.page)
+[Ata](https://deathl0ck.atabook.org/) &ensp;&ensp;    [Guns.lol](https://guns.lol/airys)
