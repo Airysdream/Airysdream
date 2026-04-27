@@ -6,7 +6,7 @@
 
 
   
-  [Ata] (https://deathl0ck.atabook.org/) 
+[Ata](https://deathl0ck.atabook.org/) 
 
 
 
