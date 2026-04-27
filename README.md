@@ -2,10 +2,10 @@
 
 
 
-![image](https://files.catbox.moe/rq4nrk.png)
+![image](Untitled100_20260427192435.png)
 
   
-[Ata](https://deathl0ck.atabook.org/) 
+ㅤㅤㅤㅤㅤ[Ata](https://deathl0ck.atabook.org/) 
 
 
 
