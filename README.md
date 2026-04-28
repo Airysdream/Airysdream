@@ -5,7 +5,7 @@
 ![image](Untitled100_20260427192435.png)
 
   
-ㅤㅤㅤㅤㅤ[Ata](https://deathl0ck.atabook.org/) 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ[Ata](https://deathl0ck.atabook.org/) 
 
 
 
