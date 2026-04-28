@@ -4,10 +4,10 @@
 ![image](Untitled100_20260427192435.png)
 
 
-$$\color{#4c4087}{I love my lovely friends}$$
+$$\color{#4c4087}{Iㅤloveㅤmyㅤlovelyㅤfriends}$$
 
   
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ[Ata](https://deathl0ck.atabook.org/) 
+ㅤㅤㅤㅤㅤㅤㅤㅤ[Ata](https://deathl0ck.atabook.org/) 
 
 
 
