@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤ![profile views](https://komarev.com/ghpvc/?username=Airysdream)
+ㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=Airysdream&label=Visitors&color=4C4087)
 
 
 
